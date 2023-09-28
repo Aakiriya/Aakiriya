@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @gialonso
+- 👋 Hi, I’m @Akrikiya
 - 🌱 I’m looking to collaborate with you!
 - 📫 How to reach me gialonsoser@miners.utep.edu
 
